@@ -10,6 +10,3 @@ JavaScript;
 📧: vivig720@gmail.com
 📞: https://wa.me/5588992238197
 🔗: linkedin.com/in/vivianmariag/
-# vivianmaria-Portifolio---Vivian-Maria
-# vivianmaria-Portifolio---Vivian-Maria
-# vivianmaria-Portifolio---Vivian-Maria
